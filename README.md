@@ -1,0 +1,1 @@
+criar uma arquitetura de segurança1
